@@ -8,6 +8,6 @@ README.md
 - Ask me about nothing. <!-- rly. -->
 - How to reach me: ... nothing. <!-- you know. -->
 - Pronouns: nothing. <!-- -_- how r3t you have to be to be called anything else than HE for men and SHE for women. -->
-- Fun fact: nothing. <!-- I have my life. -->
+- Fun fact: nothing. <!-- I hate my life. -->
 
 <!-- to be continued. I think. -->
